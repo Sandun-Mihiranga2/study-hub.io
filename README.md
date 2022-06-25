@@ -1,1 +1,1 @@
-# Study Motivation
+# Study Hub
